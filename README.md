@@ -14,6 +14,7 @@ I like this series because of its interesting storyline, unique characters, and 
 - Lucas Sinclair
 - Will Byers
 - Steve Harrington
+- gon
 
 ## Favorite Things About the Series
 1. Interesting storyline
